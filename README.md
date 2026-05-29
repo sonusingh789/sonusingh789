@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Hi, I'm Sonu Singh,Focused on fundamentals, problem-solving, and continuous learning.
 
 ## 🌐 Socials:
